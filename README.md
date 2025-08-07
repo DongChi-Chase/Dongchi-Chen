@@ -14,4 +14,4 @@
 I’m a passionate quasi graduate student focusing on defect location and repair. I’m always eager to learn new things and expand my knowledge.  
 Feel free to connect with me via WX-TJUCDC!
 
-> Be yourself.
+> All greatness comes from a brave beginning !
